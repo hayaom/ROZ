@@ -1,2 +1,0 @@
-# ROZ
-HAYA ALOMRAN path 3
